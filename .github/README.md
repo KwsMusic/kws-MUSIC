@@ -1,11 +1,11 @@
 ━━━━━━━━━━━━━━━━━━━━
 
 <h2 align="center">
-    ──「 FIDAA X LOKESH」──
+    ──「 KWS-MUSIC」──
 </h2>
 
 <p align="center">
-  <img src="https://te.legra.ph/file/6a4ac076ff159bdcf9656.jpg">
+  <img src="https://te.legra.ph/file/3466ff6defa8a29565856.jpg">
 </p>
 
 _**ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [ғᴀʟʟᴇɴ ✘ ᴍᴜsɪᴄ](https://t.me/FallenMusicBot)**_
